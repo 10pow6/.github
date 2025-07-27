@@ -1,3 +1,6 @@
+# Welcome
+https://10pow6.com
+
 # Support Us
 We love to support the community as well as do fun projects. Help us do more!
 
